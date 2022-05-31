@@ -1,2 +1,2 @@
-# sjoya66.github.io
-wellcome to my web
+# joya66.github.io
+wellcome to my  website
